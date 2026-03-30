@@ -1,0 +1,1 @@
+repositori ini merupakan latihan saya dalam mengulik database disini saya mengulik lebih advance bukan cuma dasarnya saja
